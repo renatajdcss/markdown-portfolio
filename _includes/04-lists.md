@@ -1,10 +1,10 @@
-A few of my favourite things :sparkling_heart:
+A few of my favourite things
 * Nature
-  * Flowers :tulip: :cherry_blossom:
+  * Spring and Fall are my favourite seasons to watch nature
 * Video-games
   * Animal Crossing
   * Path of Exile
   * Civilization
 * Food
-  * Japanese :ramen: :curry: :sushi:
+  * Japanese: Ramen, Kare (Japanse Curry) and Sushi
   
