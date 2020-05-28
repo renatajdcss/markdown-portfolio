@@ -1,1 +1,2 @@
-Replace this with your name, and include a header.
+# Renata's Sample Portfolio using Markdown
+## just a simple markdown exercise
