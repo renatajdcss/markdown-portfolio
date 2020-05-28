@@ -1,1 +1,1 @@
-![Image of Renata's Octocat](https://ibb.co/1mzNMNw)
+![Image of Renata's Octocat](https://i.ibb.co/XCYPDPv/RCS-octocat.png)
